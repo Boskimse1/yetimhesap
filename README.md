@@ -1,2 +1,1 @@
-acıklamayok
-vgftydtrsxctyjukıçok.pojıugfdse
+
