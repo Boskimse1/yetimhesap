@@ -1,0 +1,2 @@
+acıklamayok
+vgftydtrsxctyjukıçok.pojıugfdse
